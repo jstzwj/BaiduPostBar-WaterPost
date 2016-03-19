@@ -7,8 +7,8 @@
 
 
 ####示例:  
-把使用了该项目的案例放在这里。可以放APK下载链接，或者简单放几张截图。  
-（示例一开始就放出来，方便浏览者一眼就看出是不是想找的东西）
+刚才网吧没机子，我把一个小学生机子下了，现在正在用他的机子。
+他说要把我头按在键盘上，我哈哈哈哈哈，就凭hcfbchbfccv ccbn c b bv cxbnn bn m vnmn vcnm vbsdsdfmnnfbdiwoskskwoqoqorifj
 
 
 ### 下载安装
